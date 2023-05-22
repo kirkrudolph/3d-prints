@@ -1,0 +1,1 @@
+Planetary gear - engrenage planétaire by NOP21 on Thingiverse: https://www.thingiverse.com/thing:2257076
